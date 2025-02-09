@@ -9,6 +9,5 @@
 #### 📩 Reach Me: Email me at gnaneswari1426@@gmail.com.
 #### 😄 Pronouns: She/Her
 #### ✨ Fun Fact: I love traveling and binge-watching series!
-#### 🔗 Connect with me: LinkedIn | Twitter | Website
 
 ### Excited for the journey ahead! 👩‍💻✨
